@@ -6,7 +6,8 @@
 - 👨‍💻 All of my projects are available at [https://github.com/mohamedfouly14](https://github.com/mohamedfouly14)
 
 - 📫 How to reach me **mohamedfouly14@gmail.com /**
-![gif](https://github.com/mohamedfouly14/mohamedfouly14/assets/53277245/868f93ea-0af0-4330-881f-af3fa46e90f9)
+![gif2](https://github.com/mohamedfouly14/mohamedfouly14/assets/53277245/fd6d1a74-bac8-4661-8e8d-dcd3e8e4279f)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
